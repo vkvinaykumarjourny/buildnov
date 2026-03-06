@@ -1,2 +1,1 @@
-BuildNov
-Freelancing Agency
+BUILDNOV FTREELANCING AGENCY 
